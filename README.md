@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Suryakanta Rout
-- 👀 I’m interested in web development
+- 👀 Working on new technologies and creating innovative ideas.
 
 
